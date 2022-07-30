@@ -2,10 +2,10 @@
 Choosing the best laptop for podcasting in 2022: updated review
 
 Basic Podcast Recording Equipment
-In addition to giving you a good idea of ​​what equipment you'll need for your own podcast studio, we've included links to individual posts to help you find the right products for your unique recording needs.
+In addition to giving you a good idea of what equipment you'll need for your own podcast studio, we've included links to individual posts to help you find the right products for your unique recording needs.
 
 ## laptop for podcasting
-The first and most obvious piece of podcasting equipment you will need is a computer. After all, this is where all the magic happens, from capturing and editing audio to exporting and publishing. Recording a podcast is usually not as demanding as professional music production, so you can make do with what you already have. But if you're looking to upgrade your computer, you can check out this review to pick the [best laptop for podcasting](https://qualified.one/blog/content_marketing/best-laptop-for-podcasting/)"
+The first and most obvious piece of podcasting equipment you will need is a computer. After all, this is where all the magic happens, from capturing and editing audio to exporting and publishing. Recording a podcast is usually not as demanding as professional music production, so you can make do with what you already have. But if you're looking to upgrade your computer, you can check out this review to pick the [best laptop for podcasting](https://qualified.one/blog/content_marketing/best-laptop-for-podcasting/)
 
 ## Microphones
 One of the main reasons why it's important to determine exactly what equipment you'll need for podcasting is that you can't just use any microphone - especially the built-in microphone on your computer, camera, or phone. These mics are more likely to pick up ambient and background noise and sound less professional.
